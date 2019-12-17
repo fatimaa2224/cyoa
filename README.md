@@ -7,3 +7,5 @@
 [Fatima Alzamzami](https://github.com/fatimaa2224)
 
 [Emma Doherty](https://github.com/emmad9146)
+
+[Link To Outline](https://docs.google.com/drawings/d/1piVeCVMB5t8Qj6YwpmlrwRSzhDCnr9xFW8Qg1zD67kw/edit?ts=5df85bf4)
